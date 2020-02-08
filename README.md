@@ -1,2 +1,3 @@
 # justdoit
-Nothing to share anything.
+i want to learn c programming 
+please send me any links to learn
