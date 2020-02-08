@@ -1,2 +1,3 @@
 # justdoit
-here we go what to do !!!
+Here we are to do anything for you.
+The only thing is to learn .
